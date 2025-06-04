@@ -58,7 +58,7 @@ I dedicate this work to my daughter and all souls who are learning how to be hea
 If you're working on AI for good, mental health technology, or beginner-friendly NLP tools, I'd love to connect.
 
 **GitHub**: [natheryinan](https://github.com/natheryinan)  
-**LinkedIn**: [linkedin.com/in/yinan](https://www.linkedin.com/in/yinan)  
+**LinkedIn**: [linkedin.com/in/yinanyanglinkedin](https://www.linkedin.com/in/yinanyanglinkedin/)  
 **Email**: yangyinanapp@gmail.com
 
 ---
